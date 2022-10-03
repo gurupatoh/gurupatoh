@@ -17,7 +17,7 @@
 
 - 📄 Know about my experiences [https://patrickngigi.netlify.app/](https://patrickngigi.netlify.app/)
 
-- ⚡ Fun fact **Am an active member of Nature and wildlife conservation**
+- ⚡ Fun fact **Anime fun**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
